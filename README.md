@@ -2,4 +2,12 @@
 <br />
 <br />
 
-![art credits 2ear_te9p](https://files.catbox.moe/enfiec.png)
+# do not interact list
+  
+<img src="https://files.catbox.moe/enfiec.png" width="300">
+
+<br />
+
+wincest , proship , darkship , anyone associated with [ollie](https://github.com/@blissfuloverd0s3) , heated rivalry fans ,
+
+# 
