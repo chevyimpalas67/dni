@@ -8,6 +8,6 @@
 
 <br />
 
-wincest , proship , darkship , anyone associated with [ollie](https://github.com/@blissfuloverd0s3) , heated rivalry fans ,
+wincest , proship , darkship , anyone associated with [ollie](https://github.com/blissfuloverd0s3) , heated rivalry fans ,
 
 # 
